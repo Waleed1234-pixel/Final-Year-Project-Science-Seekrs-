@@ -7,7 +7,8 @@ Helps students better understand science and develop a lasting interest in the s
 
 
 
-<img width="594" alt="img-1" src="https://github.com/user-attachments/assets/758013ac-eb6b-485f-98de-141d42ddf31d" />
+![image](https://github.com/user-attachments/assets/90e4ac2b-4212-4e07-b151-626881f2f3bf)
+
 
 Tools-Used:
 
