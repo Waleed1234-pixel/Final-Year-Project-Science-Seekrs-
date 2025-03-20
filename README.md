@@ -18,6 +18,17 @@ Tools-Used:
 4. Kinemaster
 5. Blender
 
+   ### 🎥 Watch 2d Animations (English and Urdu):
+   ### 📂 Download & Play:
+🔹 [Watch](https://drive.google.com/drive/folders/1YnJuDDI4RAfiPnIUU4rblpH4-ffGNWJM?usp=sharing)  
+
+### 🎥 Watch 3d Animations (English and Urdu):
+   ### 📂 Download & Play:
+🔹 [Watch](https://drive.google.com/drive/folders/1TcmN4vVu5XlXFWSbcCKNROWyWO2CBYJZ?usp=sharing)  
+
+
+
+
 
 
 
